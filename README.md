@@ -1,0 +1,1 @@
+# nakones-margin-topni-qanaqa-qilishni-bildim
